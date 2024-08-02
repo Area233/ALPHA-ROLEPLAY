@@ -1,1 +1,1 @@
-seskok padákem
+added nové pausemenu 
