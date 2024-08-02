@@ -1,1 +1,1 @@
-added nové pausemenu 
+PRO STÁTNÍ SLOŽKY SPIKE
