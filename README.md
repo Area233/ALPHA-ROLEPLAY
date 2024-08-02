@@ -1,1 +1,1 @@
-nový fuel systém
+seskok padákem
