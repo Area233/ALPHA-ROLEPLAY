@@ -1,1 +1,1 @@
-upraveny barvy u bankingu a billingu -area
+přidány krabičky z náboji 
