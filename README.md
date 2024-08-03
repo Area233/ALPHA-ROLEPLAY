@@ -1,1 +1,1 @@
-nové guns by -- paradox
+oprava mdt, a vyhledání zbraní -- by area/hawkins
