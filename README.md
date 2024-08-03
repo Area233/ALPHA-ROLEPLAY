@@ -1,1 +1,1 @@
-script na zastavárnu by -- area
+mining script by -- area
