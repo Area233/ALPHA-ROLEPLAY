@@ -1,1 +1,1 @@
-Přidán script na zapujčení vodního skutru a boardu -- hawkins
+po quit hry uložení armoru -- hawkins
