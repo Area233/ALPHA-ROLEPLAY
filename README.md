@@ -1,1 +1,1 @@
-mining script by -- area
+přidano outfitbag, headbag,  -- hawkins
