@@ -1,1 +1,1 @@
-script na sundání spz/rz -- hawkins
+přebarveno appereance by -- paradox
