@@ -1,1 +1,1 @@
-po quit hry uložení armoru -- hawkins
+new phone by -- hawkins brzo in sneekpeeks
