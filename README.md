@@ -1,1 +1,1 @@
-přidano outfitbag, headbag,  -- hawkins
+přidano dj pult do barů
