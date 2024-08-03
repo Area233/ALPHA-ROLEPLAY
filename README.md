@@ -1,1 +1,1 @@
-new phone by -- hawkins brzo in sneekpeeks
+script na sundání spz/rz -- hawkins
