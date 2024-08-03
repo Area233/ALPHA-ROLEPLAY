@@ -1,1 +1,1 @@
-přebarveno appereance by -- paradox
+nové guns by -- paradox
